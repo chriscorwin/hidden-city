@@ -8,7 +8,7 @@ This despite the fact that "the hole" was maaaayyybe two inches around and was a
 
 Also, and this is important, the other side of the back wall of Target (near the back to school stuff ) _did not have a city behind it_.
 
-It could not have a city behind it, because what _was_ behind it was the men's washroom.
+It could not have a city behind it because what _was_ behind it was the men's washroom.
 
 I know: I had just used it.
 
