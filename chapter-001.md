@@ -1,6 +1,6 @@
 # Hidden City
 
-"We jump through it. I think."
+"We jump through it. ...I think."
 
 She looked at me like D: , jumped into the hole, and disappeared into the city below.
 
